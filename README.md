@@ -2,3 +2,5 @@
 
 
 ![](https://komarev.com/ghpvc/?username=wallaru&color=f3bf78)
+
+whisp if you need something. i have public chat off
