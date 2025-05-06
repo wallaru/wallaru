@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=wallaru&color=f3bf78)
 
-<b>whisp if you need something. i have public chat off</b>
+<b>whisp if you need something! i have public chat off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
 a) i am a loud and proud fire wizard
 
