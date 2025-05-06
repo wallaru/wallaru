@@ -3,4 +3,8 @@
 
 ![](https://komarev.com/ghpvc/?username=wallaru&color=f3bf78)
 
-whisp if you need something. i have public chat off
+<b>whisp if you need something. i have public chat off</b>
+
+a) i am a loud and proud fire wizard in wizard101
+
+b) yes you can add me. please do
