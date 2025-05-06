@@ -5,6 +5,6 @@
 
 <b>whisp if you need something. i have public chat off</b>
 
-a) i am a loud and proud fire wizard in wizard101
+a) i am a loud and proud fire wizard
 
-b) yes you can add me. please do
+b) yes you can add me on wizard101. please do
