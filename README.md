@@ -9,4 +9,4 @@ a) i am a loud and proud fire wizard
 
 b) yes you can add me on wizard101. please do
 
-I DONT LIKE BAD OMENS
+c) I DONT LIKE BAD OMENS
