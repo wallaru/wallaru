@@ -9,4 +9,4 @@ a) i am a loud and proud fire wizard
 
 b) yes you can add me on wizard101. please do
 
-c) I DONT LIKE BAD OMENS
+<img src="https://64.media.tumblr.com/da72bc41a11f0500ac30f1cc1a9c2e74/tumblr_po53hx5mHg1xmed4ro9_r2_250.gifv"></img>
