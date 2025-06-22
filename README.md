@@ -1,6 +1,6 @@
 <b>whisp if you need something! i have public chat off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
-<img src="https://i.ibb.co/qYZ7Y0k5/dfgergregreger.png"></img>
+<img src="https://i.postimg.cc/fbrhxgmr/ezgif-69d4d8bebbe1e0.png"></img>
 
 <details>
 <summary>music & stuff</summary>
