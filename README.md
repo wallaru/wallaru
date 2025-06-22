@@ -5,8 +5,4 @@
 
 <b>whisp if you need something! i have public chat off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
-a) i am a loud and proud fire wizard
-
-b) yes you can add me on wizard101. please do
-
 <img src="https://i.ibb.co/qYZ7Y0k5/dfgergregreger.png"></img>
