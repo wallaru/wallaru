@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=wallaru&color=c75720&label=🔥 )
 <br>
-<b>whisp if you need something! i have a very low chat bubble range/msgs off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
+<b>whisp if you need something! i have public msgs off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
 <img src="https://i.postimg.cc/fbrhxgmr/ezgif-69d4d8bebbe1e0.png"></img>
 
