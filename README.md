@@ -2,8 +2,6 @@
 <br>
 <b>whisp if you need something! i have public msgs off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
-<img src="https://i.postimg.cc/fbrhxgmr/ezgif-69d4d8bebbe1e0.png"></img>
-
 <details>
 <summary>music & stuff</summary>
 
@@ -11,5 +9,4 @@
 <br>
 <a href="http://www.allaboutfrogs.org/funstuff/frogtest.php3"><img src="http://www.allaboutfrogs.org/funstuff/frogtest/result3.jpg"  width=215 height=100 alt="I'm a Budgett's Frog!" border="0"  ></a>
 <br>
-icon is of my wizard by <a href="https://x.com/ChilledOnii/status/1925625883303252164">chilledonii</a>
 </details>
