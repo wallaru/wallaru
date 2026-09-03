@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=wallaru&color=414f27&label=🔥 )
+![](https://komarev.com/ghpvc/?username=wallaru&color=414f27&label=🌈 )
 <br>
-<b>whisp if you need something! i have public msgs off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
+<b>whisp if you need something i have public msgs off
 
 <details>
 <summary>music & stuff</summary>
