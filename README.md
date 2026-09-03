@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=wallaru&color=c75720&label=🔥 )
+![](https://komarev.com/ghpvc/?username=wallaru&color=414f27&label=🔥 )
 <br>
 <b>whisp if you need something! i have public msgs off <img src="https://i.imgur.com/OTqspj7.gif"></img></b>
 
