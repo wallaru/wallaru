@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=wallaru&color=414f27&label=🌈 ) <img src="https://i.imgur.com/Hzvbpcm.gif">
 <br>
-<b>whisp if you need something i have public msgs off
+whisp if you need something i have public msgs off
 <details>
 <summary>music & stuff</summary>
 
